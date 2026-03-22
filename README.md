@@ -1,1 +1,0 @@
-# IoT-Lab-6-Tasks---Nguyen-Duc-Tai-2470321-
